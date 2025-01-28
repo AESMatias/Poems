@@ -78,7 +78,6 @@ en laboriosa triangulación, a cristalina esfera mantuvieran,
 
 bajo las bellas sedas de la proporción, que de ella siempre en servicial juventud son.
 
----
 # Segunda forma de hablar:
 
 Cuantiosa finura desprendes, al desenvainar tuyo cuerpo de un siempre cautivador primer movimiento,
